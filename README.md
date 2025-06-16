@@ -1,0 +1,1 @@
+# No-cooldown-Fairy-Tail-hack
